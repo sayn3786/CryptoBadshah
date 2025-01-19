@@ -1,0 +1,2 @@
+# CryptoBadshah
+Trading Consultant
